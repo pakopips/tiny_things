@@ -1,1 +1,1 @@
-Apenas estudos e praticas de codigos iniciais ! ꉂ(˵˃ ᗜ ˂˵)
+Apenas estudos e praticas de codigos para iniciantes ! ꉂ(˵˃ ᗜ ˂˵)
